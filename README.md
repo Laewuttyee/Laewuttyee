@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Laewuttyee
+ I’m @Laewuttyee
 
 - 🌱 I’m currently learning ...
 
